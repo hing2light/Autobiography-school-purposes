@@ -1,1 +1,0 @@
-# Autobiography-school-purposes
